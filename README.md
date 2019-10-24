@@ -1,1 +1,0 @@
-# lobsangdorjechang.github.io
